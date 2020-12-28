@@ -1,1 +1,0 @@
-# yaz-lan-Dili-bulma
